@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **alonsoduf29@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/13yPFSfMhRLIgId_TfUgISwN6bNLLka61SmZx1SgEfeM/edit?usp=sharing](https://docs.google.com/document/d/13yPFSfMhRLIgId_TfUgISwN6bNLLka61SmZx1SgEfeM/edit?usp=sharing)
+- 📄 Know about my experiences [Resume CV](https://docs.google.com/document/d/13yPFSfMhRLIgId_TfUgISwN6bNLLka61SmZx1SgEfeM/edit?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
